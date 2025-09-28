@@ -2,7 +2,7 @@
 
 **Due: Friday, Sep 26, 2025 @ 11:59 PM**
 
-About the author--XXX XXX
+About the author--Qianchen Yu
 
 1. My preferred name is Qianchen Yu and my pronouns are [he/him].
 2. I am a PhD majoring in Urban Planning in the Department of Urban and Regional Planning.
